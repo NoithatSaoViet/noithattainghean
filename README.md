@@ -22,7 +22,7 @@ Trước khi bước vào quá trình chọn địa chỉ mua <a href="http://no
 <p style="text-align: center;"><em>Nội thất đẹp cho không gian sống sang trọng</em></p>
 Và <strong><a href="http://noithatsaovietnghean.com">Nội thất Sao Việt</a></strong> là một địa chỉ bạn không nên bỏ qua. Đến với Sao Việt, bạn luôn có:
 
-<img class="aligncenter wp-image-1023 size-full" src="http://noithatsaovietnghean.com/wp-content/uploads/2018/01/Toàn-cảnh-2.jpg" alt="Toàn cảnh 2" width="3543" height="2362" />
+<img class="aligncenter wp-image-1023 size-full" src="http://noithatsaovietnghean.com/wp-content/uploads/2018/01/Toàn-cảnh-2.jpg" alt="toan-canh" width="3543" height="2362" />
 <p style="text-align: center;"><em>Đa dang sản phẩm nội thất đẹp tại Nội thất Sao Việt</em></p>
 <strong>-&gt; </strong>Cơ hội chọn mua với đa dạng sản phẩm, nguồn gốc rõ ràng
 
@@ -34,6 +34,6 @@ Và <strong><a href="http://noithatsaovietnghean.com">Nội thất Sao Việt</
 
 <strong>-&gt; </strong>Chúng tôi cam kết sản xuất và phân phối chính thức sản phẩm đến tay quý khách hàng.
 
-<img class="aligncenter wp-image-1024 size-full" src="http://noithatsaovietnghean.com/wp-content/uploads/2018/01/Toàn-cảnh-1.jpg" alt="Toàn cảnh 1" width="3543" height="2362" />
+<img class="aligncenter wp-image-1024 size-full" src="http://noithatsaovietnghean.com/wp-content/uploads/2018/01/Toàn-cảnh-1.jpg" alt="toan-canh-1" width="3543" height="2362" />
 <p style="text-align: center;"><em>Showroom rộng của Nội thất Sao Việt</em></p>
 Địa chỉ <a href="http://noithatsaovietnghean.com"><strong>Nội thất Sao Việt</strong></a> tại <strong>D 29-30 Khu đô thị Minh Khang, Xã Nghi Phú, TP Vinh, Nghệ An</strong>, rất tiện di chuyển giao thông và vận chuyển.
